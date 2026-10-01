@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AAVI820129HJCLRS03
+AAVI820129HJCLRS03
